@@ -1,1 +1,1 @@
-# Gozeinopau
+teuscript aq
